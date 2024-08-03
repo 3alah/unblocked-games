@@ -1,2 +1,0 @@
-# unblocked-games
-unblocked-games
